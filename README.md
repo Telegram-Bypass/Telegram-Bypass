@@ -18,7 +18,7 @@ Bot Telegram for bypass OTP for worldwide  🧐
 
 🛒 1-Month To Telegram Bot Worldwide  $1000☑️
 
-🛒 Lifetime Discord Bot $5000☑️
+🛒 Lifetime Telegram Bot $5000☑️
 
 Bot features ☑️
 
